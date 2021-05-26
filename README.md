@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IVAbdulin
+- 👋 Hi, I’m Ildar (@IVAbdulin)
 - 👀 I’m interested in study and devoloping of something new.
 - 🌱 I’m currently a begginer in crypto world that is why everything is interesting for me.
 - 💞️ I’m looking to collaborate on project for begginers of testing networks or smth 
